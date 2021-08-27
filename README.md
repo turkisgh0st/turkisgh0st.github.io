@@ -1,1 +1,1 @@
-# turkisgh0st.github.io
+404 Not Found
